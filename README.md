@@ -1,2 +1,2 @@
 # Offdata
-itens for midia
+itens for social media
